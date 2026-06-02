@@ -1,4 +1,4 @@
-# 
+# Instantâneo Adobe Audition extensões para Mac OS | Nativo Adobe Audition extensões para PC Windows. Com rastreamento de movimento e suporte a plugins — otimizado para máximo desempenho em cada plataforma.
 
 
 
